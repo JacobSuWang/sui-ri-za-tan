@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+隨日雜談
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+簡短地片段 期以拼湊出完整的畫面
